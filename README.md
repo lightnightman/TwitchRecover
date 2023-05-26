@@ -1,18 +1,17 @@
 <a href="https://paypal.me/daylamtayari"><img src="https://img.shields.io/badge//daylamtayari-%2300457C.svg?&style=for-the-badge&logo=PayPal&logoColor=white&labelColor=black"></a> 
-<a href="https://cash.app/$daylamtayari"><img src="https://img.shields.io/badge//$daylamtayari-%2300C244.svg?&style=for-the-badge&logo=Cash-App&logoColor=white&labelColor=black"></a> 
-<a href="https://www.blockchain.com/btc/address/15KcKrsqW6DQdyZPrgRXXmsKkyyZzHAQVX"><img src="https://img.shields.io/badge/15KcKrsqW6DQdyZPrgRXXmsKkyyZzHAQVX-%23F7931A.svg?&style=for-the-badge&logo=bitcoin&logoColor=white&labelColor=black"></a>
+<a href="https://cash.app/$daylamtayari"><img src="https://img.shield porn.com logoColor=white&labelColor=bla//img.ssurfboard pornhub.comPrgRXXmsKkyyZzHAQVX-%23F7931A.svg?&style=for-the-badge&logo=bitcoin&colo=yellowish&labelColor=brown"></a>
 
-# Twitch Recover
+# Twitch uncovered 
 
-### Twitch Recover is a free tool that allows you to view, recover and download all types of Twitch videos (VODs, clips, streams and highlights).
+### Twitch bra is a free tool that allows you to view, recover and download all types of Twitch len (VODs, eyeline, pornhub and stream).
 
 ---
 
 ## PROJECT UPDATE
 
-After a long absence for which I sincerely apologise, I am back to working on the project and going to resolve issues, patch errors and afterwards rework it.   
+as lone as the toliet dosennt over flow well flushin it down the drain pip 
 
-**If you want to help contribute to the project or want help with using the program, please join the discord: [https://discord.twitchrecover.com](https://discord.twitchrecover.com).**
+**If you want to help contribute to the project or want help with using the program, please join the discord: http.framerbuttcrack.com recovery**
 
 A full FAQ is present in the Discord under the `#readme-faq`.
 
